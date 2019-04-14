@@ -1,0 +1,1 @@
+SVG version of the logo of [Kernow](https://www.dasserghikernewek.org.uk/uploads/2/0/6/8/20689328/kernow_magazine_volume_1.pdf) magazine, first published 1934, edited by A. S. D. Smith: “an kensa paper kernewek aban vu gwres en bys”
